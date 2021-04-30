@@ -1,1 +1,1 @@
-# The-Seven-Wonders-of-the-World
+# The Seven Wonders of the World
